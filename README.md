@@ -1,0 +1,2 @@
+# PENSAMENTO-COMPUTACIONAL
+Atividades do 1A 
